@@ -1,9 +1,7 @@
 # sam/samuel <img src="https://64.media.tumblr.com/968fe9da3852c6158337570a85db19c2/0a00e9a777a336c9-8d/s75x75_c1/287dab7aa5cfd7128a736271ac06c91148d1f85b.gifv"/> he/him <img src="https://64.media.tumblr.com/b5a3d8e81a2fa4b29a66a5fec094bee9/767f31d9cc30f8f2-9c/s75x75_c1/4f7627d2001eb4c3d945566d6e67aa86f0dcc1fa.gifv"/> 4teen
 ## BMF! Disc: machinecrusher Roblox: jollyestfellow <img src="https://64.media.tumblr.com/22137bd6d07267c2de6a08ffa4bd4b8c/2548834662a1f658-b5/s75x75_c1/ad161fd51c738cf3f0b83abdc28b127bbf0b1211.gifv"/> I have tons of free time this summer <img src="https://64.media.tumblr.com/72717a3ca7335ae7d15f8fc6c074dfa3/9f36dbe54050a12c-9f/s75x75_c1/1fda82b588cf2ed406e576ae88a373a5e3863ca2.gifv"/>
-<img src="https://64.media.tumblr.com/f698d579634b29c9011e4b253ec063e2/c19e323d070b2290-d3/s1280x1920/dc5480efaef50440f96bf61c9c12f66a2a87f45d.pnj"/>
-<img src="https://i.postimg.cc/mrR0CnwN/2025-06-12-04b-Kleki.png"/>
-<img src="https://64.media.tumblr.com/7e274d2ec6d9e532884fe8afaec8f42f/c19e323d070b2290-6e/s1280x1920/08d8a0e241f890633b471ae70d6911779fb969f3.pnj"/>
-
+# C+H freely
+<img src="https://i.pinimg.com/736x/fe/c6/f1/fec6f176bd95f7c1fd500802683a57b2.jpg"/>
 <!--
 **machinecrusher/machinecrusher** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
