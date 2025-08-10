@@ -3,6 +3,6 @@
     ㅤ ㅤㅤ   
           ㅤ ㅤㅤ   
 <b>Kin list :  ㅤㅤ ⏕  Glados, Wheatley, Pim, Nickel (ii), Rigby, Mepadㅤ ㅤㅤ <img src="https://64.media.tumblr.com/0f2cee1f4140e0f2946e0965edfa0f2c/b2d590edb3a2ab94-62/s250x400/4ec9f1d534aa21a41737c545a87f9ad8da40369e.pnj" width="60" height="60" alt="Computer Hope">  </b>
-disc: machinecrusher    ㅤㅤ add me <img src="https://64.media.tumblr.com/a5bf618c2fb67b93809ff3e53049ad89/a60c364c847652be-f4/s75x75_c1/ca69a7825b6d59e0be84c9f7371e3d8902fb12d2.gifv"/> 
+<h3>disc:  <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/589f0e6a-84ea-43ec-9a9e-e837c4c73477/dhmnkll-b1e25da0-79c9-48ff-b507-94ca10ac576c.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU4OWYwZTZhLTg0ZWEtNDNlYy05YTllLWU4MzdjNGM3MzQ3N1wvZGhtbmtsbC1iMWUyNWRhMC03OWM5LTQ4ZmYtYjUwNy05NGNhMTBhYzU3NmMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.eh0i9yrXke3_begtLDJMwTUnB-eu-EPm1b0t3zl1vbI"/>       machinecrusher    ㅤㅤ add me <img src="https://64.media.tumblr.com/a5bf618c2fb67b93809ff3e53049ad89/a60c364c847652be-f4/s75x75_c1/ca69a7825b6d59e0be84c9f7371e3d8902fb12d2.gifv"/>    𓎢𓎟     ㅤ</h3>
 
 dni : ask, I block freely    𓍼    ㅤ  , ㅤ
